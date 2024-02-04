@@ -11,7 +11,7 @@
 ------------------
 ## WEISTREAM - Makes it easy to restream
 ## 👉 Website: http://www.weistream.com
-## 👉 Discord: https://discord.gg/jyzpnrFj
+## 👉 Discord: https://discord.gg/ZzdqXQ7h
 ## 👉 Whatsapp: https://chat.whatsapp.com/IQcE7gdZ5r9KsGLihmbXi6
 <!--
 
