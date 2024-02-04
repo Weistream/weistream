@@ -9,7 +9,7 @@
 - 💥 Leverage the power of multi-platform live streaming to boost sales and expand your business opportunities!
 - FREE USE here: http://www.weistream.com
 ------------------
-## WEISTREAM - Makes it easy to restream
+## WEISTREAM - The easiest way to multistream
 ## 👉 Website: http://www.weistream.com
 ## 👉 Discord: https://discord.gg/ZzdqXQ7h
 ## 👉 Whatsapp: https://chat.whatsapp.com/IQcE7gdZ5r9KsGLihmbXi6
